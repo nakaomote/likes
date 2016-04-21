@@ -29,5 +29,35 @@ alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
 alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
 - He only robbed like 60 South African banks or something, lol.
 
+## I am Sam
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=EROTbDCr5ag
+" target="_blank"><img src="http://img.youtube.com/vi/EROTbDCr5ag/0.jpg"
+alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+- You want to cry this is the right movie.
+
+## Black Swan
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=5jaI1XOB-bs
+" target="_blank"><img src="http://img.youtube.com/vi/5jaI1XOB-bs/0.jpg"
+alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+- To be honest this movie really was amazing. Watch with partner.
+
+## Carnage
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=ZPX6-4Bo7XU
+" target="_blank"><img src="http://img.youtube.com/vi/ZPX6-4Bo7XU/0.jpg"
+alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+- This movie is truly amazing. French people make great stories.
+
+## Soldier
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=4oeW9sflsdg
+" target="_blank"><img src="http://img.youtube.com/vi/4oeW9sflsdg/0.jpg"
+alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+- Something about this movie touched me. It's very 90s. But strange. Nothing special.
+
+## 永遠のゼロ
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=gmMlWI5Z66I
+" target="_blank"><img src="http://img.youtube.com/vi/gmMlWI5Z66I/0.jpg"
+alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+- This movie will make you cry. Especially if you understand enough Japanese.
+
 # Books
 [Fooled by randomness](http://www.amazon.com/Fooled-Randomness-Hidden-Markets-Incerto/dp/0812975219/ref=sr_1_1?ie=UTF8&qid=1460607982&sr=8-1&keywords=fooled+by+randomness)
