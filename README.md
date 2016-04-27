@@ -29,6 +29,18 @@ alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
 alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
 - He only robbed like 60 South African banks or something, lol.
 
+## Lock stock and two smoking barrels
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=j0e0HB15FL4
+" target="_blank"><img src="http://img.youtube.com/vi/j0e0HB15FL4/0.jpg"
+alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+- This movie is truly legendary (The song: I wanna be your dog).
+
+## Snatch
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=ni4tEtuTccc
+" target="_blank"><img src="http://img.youtube.com/vi/ni4tEtuTccc/0.jpg"
+alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+- This movie is truly legendary.
+
 ## I am Sam
 <a href="http://www.youtube.com/watch?feature=player_embedded&v=EROTbDCr5ag
 " target="_blank"><img src="http://img.youtube.com/vi/EROTbDCr5ag/0.jpg"
